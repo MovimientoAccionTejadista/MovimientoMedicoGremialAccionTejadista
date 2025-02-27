@@ -1,2 +1,2 @@
-# Movimientomedicoacciontejadista
-movimiento medico dedicado a la lucha y bienestar de los medicos en republica dominicana
+# Movimiento Medico Gremial Accion Tejadista
+Unidad e Institucionalidad
